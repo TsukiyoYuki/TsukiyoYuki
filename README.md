@@ -1,6 +1,6 @@
 # im lokey senstive... and depressed <3 call me Tsu, or Yuki 
 
-<img width="736" height="433" alt="I AM ANGRY" src="https://github.com/user-attachments/assets/30beacc3-3788-4319-a467-f90920b79b73" /> 
+<img width="300" height="300" alt="I AM ANGRY" src="https://github.com/user-attachments/assets/30beacc3-3788-4319-a467-f90920b79b73" /> 
 <br><br><br><br><br><br><br><br>
 
 <img width="736" height="414" alt="shinobu kocho 3" src="https://github.com/user-attachments/assets/1db71bf3-0cf9-4c39-870b-86c5d82bc005" />

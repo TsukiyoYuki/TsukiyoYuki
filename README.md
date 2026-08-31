@@ -1,10 +1,25 @@
 # im lokey senstive... and depressed <3 call me Tsu, or Yuki 
 
+
+
+
 <img width="736" height="433" alt="I AM ANGRY" src="https://github.com/user-attachments/assets/30beacc3-3788-4319-a467-f90920b79b73" />
+
+
+
+
+
 
 <img width="736" height="414" alt="shinobu kocho 3" src="https://github.com/user-attachments/assets/1db71bf3-0cf9-4c39-870b-86c5d82bc005" />
 
+
+
+
 <img width="736" height="736" alt="born to die forced to work" src="https://github.com/user-attachments/assets/3cad64fa-0172-48bf-9570-57599debfeb8" />
+
+
+
+
 
 <img width="1199" height="837" alt="pi?" src="https://github.com/user-attachments/assets/d433fcf3-0039-40ce-870c-d8a51537b76b" />
 

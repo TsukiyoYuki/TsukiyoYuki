@@ -18,3 +18,4 @@ you are a coward.
 
 <img width="381" height="116" alt="Screenshot 2026-09-26 at 16 32 07" src="https://github.com/user-attachments/assets/6a4e6406-ab60-4199-a491-0cd74ca48f61" />
 
+Just for this person to know, i did try but i failed ok? Your words just triggered me again. Might as well kill myself.

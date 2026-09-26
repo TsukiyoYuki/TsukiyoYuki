@@ -14,3 +14,7 @@
 
 # Im a really silent person, and goes afk a lot. Im not the best at talking but im a nice person..! I'd love to make new friends! Do talk to me im really nice :3 
 
+you are a coward.
+
+<<img width="381" height="116" alt="Screenshot 2026-09-26 at 16 32 07" src="https://github.com/user-attachments/assets/6a4e6406-ab60-4199-a491-0cd74ca48f61" />
+

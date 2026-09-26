@@ -1,5 +1,9 @@
 # im lokey senstive... and depressed <3 call me Tsu, or Yuki 
+# HUGE MARINA FAN, AND RELATE TO HERRRR 
 # SCROLL DOWN 👇
+
+<img width="1199" height="1890" alt="Screenshot 2026-09-26 at 19 03 01" src="https://github.com/user-attachments/assets/fdb7953c-52a5-4eca-ab47-d11166c3d9a8" />
+<br><br><br><br><br><br><br><br>
 <img width="1199" height="837" alt="pi?" src="https://github.com/user-attachments/assets/d433fcf3-0039-40ce-870c-d8a51537b76b" />
 <br><br><br><br><br><br><br><br>
 

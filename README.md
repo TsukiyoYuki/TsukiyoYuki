@@ -18,6 +18,6 @@
 
 # Im a really silent person, and goes afk a lot. Im not the best at talking but im a nice person..! I'd love to make new friends! Do talk to me im really nice :3 
 
-# I might die today... uhm, heres the date of my death X3  27/9/2026 wanna know how i died? (I kinda drank 15 pills of panadol.. uhm.) Im not dead yet, but no way i survive this. Well i've tried before but uh this time im surely gonna die. 
+Im not dead. I actually thought i was. I drank 15 pills of panadol. (I did this when no one was at home..) Our neighbors wanted to give us something.. and uhm.... found me lying on the floor.. yeah he took me to the hospital and now im here. 
 
-Sorry Junya... i love you <3
+# KILL ME.

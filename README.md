@@ -18,6 +18,6 @@
 
 # Im a really silent person, and goes afk a lot. Im not the best at talking but im a nice person..! I'd love to make new friends! Do talk to me im really nice :3 
 
-Im not dead. I actually thought i was. I drank 15 pills of panadol. (I did this when no one was at home..) Our neighbors wanted to give us something.. and uhm.... found me lying on the floor.. yeah he took me to the hospital and now im here. 
+# BE MY FRIENDDDD :3
 
-# KILL ME.
+# or even just c+h is okay <3

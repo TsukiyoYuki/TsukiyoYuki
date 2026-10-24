@@ -21,3 +21,6 @@
 # BE MY FRIENDDDD :3
 
 # or even just c+h is okay <3
+
+
+why do i make everything worse? can i just die.

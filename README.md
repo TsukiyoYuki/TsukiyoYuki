@@ -59,6 +59,9 @@
 
 # I yearn for a friendship that I can keep. Im scared you'll leave me again... So fair warning.. if we become friends.. I am sorry if I do anything bad (As in getting jealous over you talking to someone or any other reason), I can't help it. I really can't. So many experiences cause me to be like this. So PLEASE READ THIS BEFORE BECOMING FRIENDS WITH ME. (Im not gonna be so possesive over it dw.. i might like stay away or maybe not talk for a while, i have a habit to just not reply.)
 
+# If i don't kill myself and actually grow up i want to become a clinical therapist and help people because i hate to know that people go through pain everyday. Let me save you <3
+
+
 # BE MY FRIENDDDD :3
 
 # or even just c+h is okay <3

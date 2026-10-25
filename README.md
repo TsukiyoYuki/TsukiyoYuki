@@ -2,7 +2,7 @@
 # HUGE WARNING, (Suicide things can be said here so pls if you get triggered go off my Git love you <3)
 
 # SCROLL DOWN 👇
-<br><br><br><br><br><br><br><br>
+<img width="1000" height="900" alt="mizisua" src="https://github.com/user-attachments/assets/1bd5c19d-bfff-40ae-80a3-34f235598ae1" />
 <br><br><br><br><br><br><br><br>
 
 # im lokey senstive... and depressed <3 call me Tsu, or Yuki 
@@ -27,6 +27,9 @@
 
 <br><br><br><br><br><br><br><br>
 <img width="735" height="419" alt="suaa" src="https://github.com/user-attachments/assets/606a2bc7-a0c5-45c7-85ef-79c6e0439bbb" />
+
+<br><br><br><br><br><br><br><br>
+<img width="736" height="1109" alt="me me me me me me" src="https://github.com/user-attachments/assets/5420c11d-2634-473a-b2c0-8ba534466e64" />
 
 <br><br><br><br><br><br><br><br>
 <img width="736" height="475" alt="idk" src="https://github.com/user-attachments/assets/66595165-77fc-4a50-bc23-70f391c26248" />

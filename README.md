@@ -6,7 +6,7 @@
 <br><br><br><br><br><br><br><br>
 
 # im lokey senstive... and depressed <3 call me Tsu, or Yuki 
-# HUGE MARINA FAN, AND RELATE TO HERRRR 
+# I AM THE SUA OF PONY TOWN.
 
 <img width="1199" height="1890" alt="Screenshot 2026-09-26 at 19 03 01" src="https://github.com/user-attachments/assets/fdb7953c-52a5-4eca-ab47-d11166c3d9a8" />
 <br><br><br><br><br><br><br><br>

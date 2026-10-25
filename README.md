@@ -2,12 +2,15 @@
 # HUGE WARNING, (Suicide things can be said here so pls if you get triggered go off my Git love you <3)
 
 # SCROLL DOWN 👇
-<img width="1000" height="900" alt="mizisua" src="https://github.com/user-attachments/assets/1bd5c19d-bfff-40ae-80a3-34f235598ae1" />
+
 <br><br><br><br><br><br><br><br>
+<img width="4000" height="3000" alt="ok" src="https://github.com/user-attachments/assets/dfaaaf0e-e055-4763-8fe7-9dd3bb625d14" />
+
 
 # im lokey senstive... and depressed <3 call me Tsu, or Yuki 
 # I AM THE SUA OF PONY TOWN.
 
+👇 All some animes/games i enjoy a lot!!
 <img width="1199" height="1890" alt="Screenshot 2026-09-26 at 19 03 01" src="https://github.com/user-attachments/assets/fdb7953c-52a5-4eca-ab47-d11166c3d9a8" />
 <br><br><br><br><br><br><br><br>
 <img width="1199" height="837" alt="pi?" src="https://github.com/user-attachments/assets/d433fcf3-0039-40ce-870c-d8a51537b76b" />
@@ -23,7 +26,7 @@
 <br><br><br><br><br><br><br><br>
 
 <br><br><br><br><br><br><br><br>
-<img width="1200" height="960" alt="ok" src="https://github.com/user-attachments/assets/dfaaaf0e-e055-4763-8fe7-9dd3bb625d14" />
+<img width="1000" height="900" alt="mizisua" src="https://github.com/user-attachments/assets/1bd5c19d-bfff-40ae-80a3-34f235598ae1" />
 
 <br><br><br><br><br><br><br><br>
 <img width="735" height="419" alt="suaa" src="https://github.com/user-attachments/assets/606a2bc7-a0c5-45c7-85ef-79c6e0439bbb" />
@@ -33,6 +36,13 @@
 
 <br><br><br><br><br><br><br><br>
 <img width="736" height="475" alt="idk" src="https://github.com/user-attachments/assets/66595165-77fc-4a50-bc23-70f391c26248" />
+
+<br><br><br><br><br><br><br><br>
+<img width="736" height="981" alt="oeoeoeo" src="https://github.com/user-attachments/assets/fb91de05-e5b6-4e68-b494-97e80f8f8770" />
+
+<br><br><br><br><br><br><br><br>
+<img width="736" height="1009" alt="looooey" src="https://github.com/user-attachments/assets/e0676e31-ebe2-489b-bd0f-8162bef468cc" />
+
 
 <br><br><br><br><br><br><br><br>
 <img width="735" height="743" alt="saaayyyoorrii" src="https://github.com/user-attachments/assets/4498bdc9-3ddf-4b83-9321-cf9ecdb53cd6" />

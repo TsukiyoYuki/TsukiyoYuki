@@ -4,10 +4,6 @@
 # SCROLL DOWN 👇
 <br><br><br><br><br><br><br><br>
 <br><br><br><br><br><br><br><br>
-<br><br><br><br><br><br><br><br>
-<br><br><br><br><br><br><br><br>
-<br><br><br><br><br><br><br><br>
-<br><br><br><br><br><br><br><br>
 
 # im lokey senstive... and depressed <3 call me Tsu, or Yuki 
 # HUGE MARINA FAN, AND RELATE TO HERRRR 
@@ -26,7 +22,29 @@
 <img width="700" height="736" alt="born to die forced to work" src="https://github.com/user-attachments/assets/3cad64fa-0172-48bf-9570-57599debfeb8" />
 <br><br><br><br><br><br><br><br>
 
+<br><br><br><br><br><br><br><br>
+<img width="1200" height="960" alt="ok" src="https://github.com/user-attachments/assets/dfaaaf0e-e055-4763-8fe7-9dd3bb625d14" />
+
+<br><br><br><br><br><br><br><br>
+<img width="735" height="419" alt="suaa" src="https://github.com/user-attachments/assets/606a2bc7-a0c5-45c7-85ef-79c6e0439bbb" />
+
+<br><br><br><br><br><br><br><br>
+<img width="736" height="475" alt="idk" src="https://github.com/user-attachments/assets/66595165-77fc-4a50-bc23-70f391c26248" />
+
+<br><br><br><br><br><br><br><br>
+<img width="735" height="743" alt="saaayyyoorrii" src="https://github.com/user-attachments/assets/4498bdc9-3ddf-4b83-9321-cf9ecdb53cd6" />
+
+<br><br><br><br><br><br><br><br>
+<img width="456" height="386" alt="hxppy thxughts" src="https://github.com/user-attachments/assets/76c3f9b2-abdd-461c-94cf-28c1555766cc" />
+
+<br><br><br><br><br><br><br><br>
+<img width="1680" height="1050" alt="Screenshot 2026-10-03 at 15 48 33" src="https://github.com/user-attachments/assets/f88cecbe-1d3e-46a0-8aa6-f8ade65a6ca7" />
+
+
+
 # Im a really silent person, and goes afk a lot. Im not the best at talking but im a nice person..! I'd love to make new friends! Do talk to me im really nice :3 
+
+# I yearn for a friendship that I can keep. Im scared you'll leave me again... So fair warning.. if we become friends.. I am sorry if I do anything bad (As in getting jealous over you talking to someone or any other reason), I can't help it. I really can't. So many experiences cause me to be like this. So PLEASE READ THIS BEFORE BECOMING FRIENDS WITH ME. (Im not gonna be so possesive over it dw.. i might like stay away or maybe not talk for a while, i have a habit to just not reply.)
 
 # BE MY FRIENDDDD :3
 

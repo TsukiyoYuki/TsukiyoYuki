@@ -2,17 +2,12 @@
 # HUGE WARNING, (Suicide things can be said here so pls if you get triggered go off my Git love you <3)
 
 # SCROLL DOWN 👇
-
-
-
-
-
-
-
-
-
-
-
+<br><br><br><br><br><br><br><br>
+<br><br><br><br><br><br><br><br>
+<br><br><br><br><br><br><br><br>
+<br><br><br><br><br><br><br><br>
+<br><br><br><br><br><br><br><br>
+<br><br><br><br><br><br><br><br>
 
 # im lokey senstive... and depressed <3 call me Tsu, or Yuki 
 # HUGE MARINA FAN, AND RELATE TO HERRRR 
